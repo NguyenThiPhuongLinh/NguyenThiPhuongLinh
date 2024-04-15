@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Nguyen Thi Phuong Linh （グエン　ティ　フォン　リン）
 - 👀 I’m interested in traveling, novels, cartoon and photography.
 - 🌱 I’m currently learning business Japanese, basic Korean and how to communicate better.
-- 💞️ I’m looking to collaborate on consulting study abroad, supporting customers and strengthen company's media business.
+- 💞️ I’m looking to collaborate on consulting study abroad, supporting customers and strengthening company's media business.
 - 📫 My email is nguyentp.linh25@gmail.com
 - 😄 I am Vietnamese and was born in Lang Son, a province in Northern Vietnam.
 - ⚡ I went to Tokyo for my studying abroad when I was 19 so I have lived here for 5 years till now.
